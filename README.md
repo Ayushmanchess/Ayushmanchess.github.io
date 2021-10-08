@@ -1,3 +1,3 @@
 # Ayushmanchess.github.io
 
-Hi! you can i find all my websites here!
+Hi! you can find all my websites here!
